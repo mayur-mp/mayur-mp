@@ -1,4 +1,4 @@
-![Header](profile-header.png)
+![Header](Black Minimal Motivation Quote LinkedIn Banner.mp4)
 
  
 <div align="center">
